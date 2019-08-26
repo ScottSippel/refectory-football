@@ -28,27 +28,27 @@
 ## Lottery Results
 Current picks:
 
-1. Scott
+1st Scott
 
-2. Pat
+2nd Pat
 
-3. Marcus
+3rd Marcus
 
-4. Ben
+4th Ben
 
-5.
+5th
 
-6. Cullen
+6th Cullen
 
-7.
+7th
 
-8.
+8th
 
-9.
+9th
 
-10.
+10th
 
-11.
+11th
 
-12.
+12th
 
