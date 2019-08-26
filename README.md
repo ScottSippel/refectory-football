@@ -44,7 +44,7 @@ Current picks:
 
 8th
 
-9th
+9th Zatch
 
 10th
 
