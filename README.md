@@ -24,3 +24,30 @@
 2nd place: Joey **6%**
 
 1st place: Jack **4%**
+
+Current picks:
+
+1. Scott
+
+2. Pat
+
+3. Marcus
+
+4.
+
+5.
+
+6.
+
+7.
+
+8.
+
+9.
+
+10.
+
+11.
+
+12.
+
