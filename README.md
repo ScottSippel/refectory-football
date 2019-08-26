@@ -25,6 +25,7 @@
 
 1st place: Jack **4%**
 
+## Lottery Results
 Current picks:
 
 1. Scott
