@@ -38,7 +38,7 @@ Current picks:
 
 5.
 
-6.
+6. Cullen
 
 7.
 
