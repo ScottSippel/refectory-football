@@ -40,7 +40,7 @@ Current picks:
 
 6th Cullen
 
-7th
+7th Friebe
 
 8th
 
