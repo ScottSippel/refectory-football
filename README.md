@@ -42,13 +42,13 @@ Current picks:
 
 7th Friebe
 
-8th
+8th Erik
 
 9th Zatch
 
-10th
+10th Jack
 
-11th
+11th Tom
 
-12th
+12th Sam
 
