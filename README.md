@@ -1,54 +1,54 @@
 # Lottery Info
 
 ## Champs who get to skip the lottery
-1. Marcus (Losers winner)
-2. Scott (Consolation ladder winner)
-3. Pat (Top score week 16)
+1. Joey (Losers winner)
+2. Ben (Consolation ladder winner)
+3. Zach (Top score week 16)
 
 ## Lottery odds for the rest of the chumps
 
-12th place: Zach **20%**
+12th place: Cullen **20%**
 
-11th place: Tom (stepping in for Phil) **15%**
+11th place: Pat **15%**
 
-10th place: Ben **14%**
+10th place: Tom (Not playing this year) **14%**
 
 8th place: Friebe **13%**
 
-7th place: Sam **12%**
+6th place: Scott **12%**
 
-4th place: Cullen **9%**
+4th place: Jack **9%**
 
-3rd place: Erik **7%**
+3rd place: Sam **7%**
 
-2nd place: Joey **6%**
+2nd place: Marcus **6%**
 
-1st place: Jack **4%**
+1st place: Erik **4%**
 
 ## Lottery Results
 Current picks:
 
-1st Scott
+1st 
 
-2nd Pat
+2nd 
 
-3rd Marcus
+3rd 
 
-4th Ben
+4th 
 
-5th J-ster
+5th 
 
-6th Cullen
+6th 
 
-7th Friebe
+7th 
 
-8th Erik
+8th 
 
-9th Zatch
+9th 
 
-10th Jack
+10th 
 
-11th Tom
+11th 
 
-12th Sam
+12th 
 
