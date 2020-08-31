@@ -28,21 +28,21 @@
 ## Lottery Results
 Current picks:
 
-1st 
+1st Joey
 
-2nd 
+2nd Zach
 
-3rd 
+3rd Ben
 
-4th 
+4th Sam
 
-5th 
+5th Scott
 
-6th 
+6th Jack
 
-7th 
+7th Pat
 
-8th 
+8th Friebe
 
 9th 
 
