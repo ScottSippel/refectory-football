@@ -44,11 +44,11 @@ Current picks:
 
 8th Friebe
 
-9th 
+9th Marcus
 
-10th 
+10th Cullen
 
-11th 
+11th Phil
 
-12th 
+12th Erik
 
