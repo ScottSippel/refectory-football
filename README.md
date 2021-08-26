@@ -34,7 +34,7 @@ Current picks:
 
 3rd: Jack
 
-4th 
+4th: Dylan
 
 5th 
 
