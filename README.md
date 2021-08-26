@@ -28,11 +28,11 @@
 ## Lottery Results
 Current picks:
 
-1st 
+1st: Scott
 
-2nd 
+2nd: Friebe
 
-3rd 
+3rd: Jack
 
 4th 
 
