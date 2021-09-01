@@ -46,7 +46,7 @@ Current picks:
 
 9th 
 
-10th 
+10th: Sam
 
 11th: Ben
 
