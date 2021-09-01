@@ -36,9 +36,9 @@ Current picks:
 
 4th: Dylan
 
-5th 
+5th: Phat
 
-6th 
+6th: Marcus
 
 7th 
 
@@ -48,7 +48,7 @@ Current picks:
 
 10th 
 
-11th 
+11th: Ben
 
 12th 
 
