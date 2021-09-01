@@ -50,5 +50,5 @@ Current picks:
 
 11th: Ben
 
-12th 
+12th: Cullen
 
