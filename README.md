@@ -40,7 +40,7 @@ Current picks:
 
 6th: Marcus
 
-7th 
+7th: Joey 
 
 8th 
 
