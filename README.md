@@ -42,9 +42,9 @@ Current picks:
 
 7th: Joey 
 
-8th 
+8th: Zach
 
-9th 
+9th: Wig
 
 10th: Sam
 
