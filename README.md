@@ -28,27 +28,27 @@
 ## Lottery Results
 Current picks:
 
-1st: Scott
+1st: Scott (paid)
 
-2nd: Friebe
+2nd: Friebe (paid)
 
-3rd: Jack
+3rd: Jack (paid)
 
 4th: Dylan
 
-5th: Phat
+5th: Phat 
 
-6th: Marcus
+6th: Marcus (paid)
 
 7th: Joey 
 
-8th: Zach
+8th: Zach (paid)
 
 9th: Wig
 
-10th: Sam
+10th: Sam (paid)
 
-11th: Ben
+11th: Ben (paid)
 
-12th: Cullen
+12th: Cullen (paid)
 
