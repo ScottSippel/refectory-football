@@ -40,11 +40,11 @@ Current picks:
 
 6th: Marcus (paid)
 
-7th: Joey 
+7th: Joey (paid)
 
 8th: Zach (paid)
 
-9th: Wig
+9th: Wig (paid)
 
 10th: Sam (paid)
 
