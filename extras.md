@@ -1,7 +1,7 @@
 ---
 layout: page
 title: "Extras"
-theme: minima
+theme: jekyll-theme-cayman
 permalink: /extras/
 ---
 Place extra material
