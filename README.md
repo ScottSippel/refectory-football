@@ -28,7 +28,7 @@
 ## Lottery Results
 Current picks:
 
-1st: 
+1st: Ben
 
 2nd: 
 
