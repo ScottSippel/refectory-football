@@ -1,54 +1,54 @@
-# Lottery Info 2021 season
+# Lottery Info 2022 season
 
 ## Champs who get to skip the lottery
-1. Friebe (Losers winner)
-2. Jack (Consolation ladder winner)
+1. Ben (Losers winner)
+2. Cullen (Consolation ladder winner)
 3. Scott (Top score week 16)
 
 ## Lottery odds for the rest of the chumps
 
-12th place: Marcus **20%**
+12th place: Dill **20%**
 
-11th place: Phil/Pat **15%**
+10th place: Erik **15%**
 
-10th place: Dylan (In place of Pat) **14%**
+8th place:  Joey **14%**
 
-8th place: Erik **13%**
+7th place: Friebe **13%**
 
-7th place: Joey **12%**
+6th place: Marcus **12%**
 
-6th place: Cullen **9%**
+4th place: Jack **9%**
 
-4th place: Ben **7%**
+3rd place: Zach **7%**
 
 2nd place: Sam **6%**
 
-1st place: Zach **4%**
+1st place: Pat **4%** (CHAMP)
 
 ## Lottery Results
 Current picks:
 
-1st: Scott (paid)
+1st: 
 
-2nd: Friebe (paid)
+2nd: 
 
-3rd: Jack (paid)
+3rd: 
 
-4th: Dylan
+4th: 
 
-5th: Phat 
+5th: 
 
-6th: Marcus (paid)
+6th: 
 
-7th: Joey (paid)
+7th: 
 
-8th: Zach (paid)
+8th: 
 
-9th: Wig (paid)
+9th: 
 
-10th: Sam (paid)
+10th: 
 
-11th: Ben (paid)
+11th: 
 
-12th: Cullen (paid)
+12th: 
 
