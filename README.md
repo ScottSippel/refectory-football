@@ -28,11 +28,11 @@
 ## Lottery Results
 Current picks:
 
-1st: Ben
+1st: Ben (paid)
 
 2nd: Cullen
 
-3rd: Scott
+3rd: Scott (paid)
 
 4th: 
 
