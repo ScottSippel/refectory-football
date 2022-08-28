@@ -30,9 +30,9 @@ Current picks:
 
 1st: Ben
 
-2nd: 
+2nd: Cullen
 
-3rd: 
+3rd: Scott
 
 4th: 
 
