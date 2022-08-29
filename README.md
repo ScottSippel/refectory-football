@@ -34,7 +34,7 @@ Current picks:
 
 3rd: Scott (paid)
 
-4th: Sammy
+4th: Sammy (paid)
 
 5th: 
 
