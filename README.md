@@ -36,7 +36,7 @@ Current picks:
 
 4th: Sammy (paid)
 
-5th: 
+5th: Joey
 
 6th: 
 
