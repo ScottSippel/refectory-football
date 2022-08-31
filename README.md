@@ -38,7 +38,7 @@ Current picks:
 
 5th: Joey
 
-6th: 
+6th: Marcus (paid)
 
 7th: 
 
@@ -46,7 +46,7 @@ Current picks:
 
 9th: 
 
-10th: 
+10th: Friebe (paid)
 
 11th: 
 
