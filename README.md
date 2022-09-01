@@ -48,7 +48,7 @@ Current picks:
 
 10th: Friebe (paid)
 
-11th: 
+11th: Wig
 
-12th: 
+12th: Zach (paid)
 
