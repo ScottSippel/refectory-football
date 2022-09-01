@@ -40,11 +40,11 @@ Current picks:
 
 6th: Marcus (paid)
 
-7th: 
+7th: Jack (paid)
 
 8th: Dil 
 
-9th: 
+9th: Pat
 
 10th: Friebe (paid)
 
