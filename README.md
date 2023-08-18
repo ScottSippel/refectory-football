@@ -1,54 +1,54 @@
-# Lottery Info 2022 season
+# Lottery Info 2023 season
 
 ## Champs who get to skip the lottery
-1. Ben (Losers winner)
-2. Cullen (Consolation ladder winner)
-3. Scott (Top score week 16)
+1. Pat (Losers winner)
+2. Dil (Consolation ladder winner)
+3. Erik (Top score week 16)
 
 ## Lottery odds for the rest of the chumps
 
-12th place: Dill **20%**
+12th place: Ben **20%**
 
-10th place: Erik **15%**
+11th place: Zach **15%**
 
-8th place:  Joey **14%**
+10th place:  Joey **14%**
 
-7th place: Friebe **13%**
+8th place: Cullen **13%**
 
-6th place: Marcus **12%**
+7th place: Friebester **12%**
 
-4th place: Jack **9%**
+6th place: Jack **9%**
 
-3rd place: Zach **7%**
+4th place: Nevin (new player!) **7%**
 
-2nd place: Sam **6%**
+2nd place: Marcus **6%**
 
-1st place: Pat **4%** (CHAMP)
+1st place: Scott **4%** (CHAMP)
 
 ## Lottery Results
 Current picks:
 
-1st: Ben (paid)
+1st: 
 
-2nd: Cullen
+2nd: 
 
-3rd: Scott (paid)
+3rd: 
 
-4th: Sammy (paid)
+4th: 
 
-5th: Joey
+5th: 
 
-6th: Marcus (paid)
+6th: 
 
-7th: Jack (paid)
+7th: 
 
-8th: Dil 
+8th: 
 
-9th: Pat
+9th: 
 
-10th: Friebe (paid)
+10th: 
 
-11th: Wig
+11th: 
 
-12th: Zach (paid)
+12th: 
 
