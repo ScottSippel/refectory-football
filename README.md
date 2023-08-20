@@ -42,13 +42,13 @@ Current picks:
 
 7th: Friebe
 
-8th: 
+8th: Zach
 
-9th: 
+9th: Joey
 
-10th: 
+10th: Nevin
 
-11th: 
+11th: Jack
 
-12th: 
+12th: Scott
 
