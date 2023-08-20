@@ -30,11 +30,11 @@ Current picks:
 
 1st: Pat
 
-2nd: 
+2nd: Dil  
 
-3rd: 
+3rd: Erik
 
-4th: 
+4th: Ben
 
 5th: 
 
