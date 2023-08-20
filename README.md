@@ -36,11 +36,11 @@ Current picks:
 
 4th: Ben
 
-5th: 
+5th: Cullen
 
-6th: 
+6th: Marcus
 
-7th: 
+7th: Friebe
 
 8th: 
 
