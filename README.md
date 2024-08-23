@@ -13,7 +13,7 @@
 
 10th place: Ben **14%**
 
-8th place: Pat **13%**
+8th place: Sach **13%**
 
 6th place: Erik **12%**
 
