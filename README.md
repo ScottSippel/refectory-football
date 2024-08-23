@@ -17,7 +17,7 @@
 
 6th place: Erik **12%**
 
-4th place: Dill Daddy **9%**
+4th place: Dill DADDY **9%**
 
 3th place: Marcus **7%**
 
