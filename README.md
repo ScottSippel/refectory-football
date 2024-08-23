@@ -19,7 +19,7 @@
 
 4th place: Dill Daddy **9%**
 
-3th place: Marcus (new player!) **7%**
+3th place: Marcus **7%**
 
 2nd place: Friebe **6%**
 
