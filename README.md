@@ -28,9 +28,9 @@
 ## Lottery Results
 Current picks:
 
-1st:
+1st: Pat 
 
-2nd: 
+2nd: Scott 
 
 3rd: 
 
