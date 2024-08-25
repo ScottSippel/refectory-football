@@ -32,7 +32,7 @@ Current picks:
 
 2nd: Scott 
 
-3rd: 
+3rd: Cully
 
 4th: 
 
