@@ -34,7 +34,7 @@ Current picks:
 
 3rd: Cully
 
-4th: 
+4th: J-Ster 
 
 5th: 
 
