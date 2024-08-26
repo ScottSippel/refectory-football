@@ -36,11 +36,11 @@ Current picks:
 
 4th: J-Ster 
 
-5th: 
+5th: Ben
 
 6th: 
 
-7th: 
+7th: Friebe
 
 8th: 
 
@@ -48,7 +48,7 @@ Current picks:
 
 10th: 
 
-11th: 
+11th: Erik
 
 12th: 
 
