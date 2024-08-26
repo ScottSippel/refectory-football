@@ -50,5 +50,5 @@ Current picks:
 
 11th: Erik
 
-12th: 
+12th: Devin
 
