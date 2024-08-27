@@ -38,15 +38,15 @@ Current picks:
 
 5th: Ben
 
-6th: 
+6th: Marcus
 
 7th: Friebe
 
-8th: 
+8th: Jack
 
 9th: Sach
 
-10th: 
+10th: DILL
 
 11th: Erik
 
