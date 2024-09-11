@@ -28,27 +28,27 @@
 ## Lottery Results
 Current picks:
 
-1st: Pat 
+1st: Pat (paid)
 
-2nd: Scott 
+2nd: Scott (paid)
 
 3rd: Cully
 
-4th: J-Ster 
+4th: J-Ster (paid)
 
-5th: Ben
+5th: Ben (paid)
 
 6th: Marcus
 
-7th: Friebe
+7th: Friebe (paid)
 
-8th: Jack
+8th: Jack (paid)
 
-9th: Sach
+9th: Sach (paid)
 
-10th: DILL
+10th: DILL (paid)
 
-11th: Erik
+11th: Erik 
 
-12th: Devin
+12th: Devin (paid)
 
