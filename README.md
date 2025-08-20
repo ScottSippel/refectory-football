@@ -36,9 +36,9 @@ Current picks:
 
 4th: Cullen
 
-5th: 
+5th: Friebe
 
-6th: 
+6th: Danny
 
 7th: 
 
