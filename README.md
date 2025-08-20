@@ -7,7 +7,7 @@
 
 ## Lottery odds for the rest of the chumps
 
-12th place: Ben **20%**
+12th place: Danny **20%** (New player)
 
 11th place: Devin **15%**
 
@@ -28,13 +28,13 @@
 ## Lottery Results
 Current picks:
 
-1st:
+1st: Joey
 
-2nd: 
+2nd: Erik
 
 3rd: 
 
-4th:
+4th: Cullen
 
 5th: 
 
