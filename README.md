@@ -32,7 +32,7 @@ Current picks:
 
 2nd: Erik
 
-3rd: 
+3rd: Devin
 
 4th: Cullen
 
@@ -44,7 +44,7 @@ Current picks:
 
 8th: 
 
-9th: 
+9th: Dill Daddy
 
 10th: 
 
