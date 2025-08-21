@@ -40,7 +40,7 @@ Current picks:
 
 6th: Danny
 
-7th: 
+7th: Scott
 
 8th: 
 
