@@ -46,9 +46,9 @@ Current picks:
 
 9th: Dill Daddy
 
-10th: 
+10th: Marcus
 
-11th: 
+11th: Jack
 
 12th: Zach
 
