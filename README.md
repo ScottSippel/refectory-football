@@ -42,7 +42,7 @@ Current picks:
 
 7th: Scott
 
-8th: 
+8th: Pat
 
 9th: Dill Daddy
 
@@ -50,5 +50,5 @@ Current picks:
 
 11th: 
 
-12th: 
+12th: Zach
 
