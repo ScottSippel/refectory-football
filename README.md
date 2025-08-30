@@ -30,25 +30,25 @@ Current picks:
 
 1st: Joey
 
-2nd: Erik
+2nd: Erik (PAID)
 
-3rd: Devin
+3rd: Devin (PAID)
 
-4th: Cullen
+4th: Cullen 
 
-5th: Friebe
+5th: Friebe (PAID)
 
-6th: Danny
+6th: Danny (PAID)
 
-7th: Scott
+7th: Scott (PAID)
 
-8th: Pat
+8th: Pat (PAID)
 
-9th: Dill Daddy
+9th: Dill Daddy (PAID)
 
-10th: Marcus
+10th: Marcus (PAID)
 
-11th: Jack
+11th: Jack (PAID)
 
 12th: Zach
 
