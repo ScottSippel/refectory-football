@@ -1,54 +1,54 @@
-# Lottery Info 2025 season
+# Lottery Info 2026 season
 
 ## Champs who get to skip the lottery
-1. Joey (Losers winner)
-2. Erik (Consolation ladder winner)
-3. Cullen (Top score week 16)
+1. Jack (Losers winner)
+2. Scott (Consolation ladder winner)
+3. Joey (Top score week 16)
 
 ## Lottery odds for the rest of the chumps
 
-12th place: Danny **20%** (New player)
+12th place: Erik **20%**
 
-11th place: Devin **15%**
+11th place: Cullen **15%**
 
-10th place: Sach **14%**
+10th place: Danny **14%**
 
-8th place: Scott **13%**
+8th place: Sach **13%**
 
-7th place: Friebe **12%**
+6th place: Friebe  **12%**
 
-6th place: Jack **9%**
+4th place: Marcus **9%**
 
-4th place: Marcus **7%**
+3rd place: Devin **7%**
 
-2nd place: Pat **6%**
+2nd place: Dill **6%**
 
-1st place: Dill Daddy **4%** (CHAMP)
+1st place: Pat **4%** (CHAMP)
 
 ## Lottery Results
 Current picks:
 
-1st: Joey
+1st:
 
-2nd: Erik (PAID)
+2nd:
 
-3rd: Devin (PAID)
+3rd:
 
-4th: Cullen 
+4th:
 
-5th: Friebe (PAID)
+5th:
 
-6th: Danny (PAID)
+6th:
 
-7th: Scott (PAID)
+7th:
 
-8th: Pat (PAID)
+8th:
 
-9th: Dill Daddy (PAID)
+9th:
 
-10th: Marcus (PAID)
+10th:
 
-11th: Jack (PAID)
+11th:
 
-12th: Zach
+12th:
 
