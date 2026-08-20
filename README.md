@@ -3,7 +3,7 @@
 ## Champs who get to skip the lottery
 1. Jack (Losers winner)
 2. Scott (Consolation ladder winner)
-3. Joey (Top score week 16)
+3. Sam (Top score week 16)
 
 ## Lottery odds for the rest of the chumps
 
@@ -28,11 +28,11 @@
 ## Lottery Results
 Current picks:
 
-1st:
+1st: Scott
 
 2nd:
 
-3rd:
+3rd: Sam
 
 4th:
 
@@ -44,7 +44,7 @@ Current picks:
 
 8th:
 
-9th:
+9th: Jack
 
 10th:
 
