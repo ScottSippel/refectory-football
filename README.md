@@ -30,7 +30,7 @@ Current picks:
 
 1st: Scott
 
-2nd:
+2nd: Cully
 
 3rd: Sam
 
