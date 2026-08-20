@@ -34,7 +34,7 @@ Current picks:
 
 3rd: Sam
 
-4th:
+4th: Zach
 
 5th: Erik
 
