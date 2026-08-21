@@ -38,7 +38,7 @@ Current picks:
 
 5th: Erik
 
-6th:
+6th: Devin
 
 7th:
 
@@ -46,7 +46,7 @@ Current picks:
 
 9th: Jack
 
-10th:
+10th:Friebe
 
 11th:
 
