@@ -40,9 +40,9 @@ Current picks:
 
 6th: Devin
 
-7th:
+7th: Marcus
 
-8th:
+8th: Danny
 
 9th: Jack
 
